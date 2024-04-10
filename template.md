@@ -1,2 +1,2 @@
-## <center> 文摘</center>
+## <center>文摘</center>
 
