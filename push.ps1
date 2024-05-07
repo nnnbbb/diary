@@ -6,6 +6,6 @@ $gitChangedFiles = $(git status --porcelain | Measure-Object | Select-Object -ex
 if ($gitChangedFiles -gt 0) {
   git pull
   git add .
-  git commit -m "$date"
+  git commit -m "Updated $date"
   git push
 }
