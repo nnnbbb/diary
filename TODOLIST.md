@@ -25,21 +25,6 @@ https://www.zhihu.com/question/457143607/answer/2769284769
 摩托车299km/h
 https://www.zhihu.com/answer/3413042927
 
-NPD
-https://www.zhihu.com/answer/3337177392
-https://www.zhihu.com/answer/3341089516
-
-情绪价值
-https://www.zhihu.com/answer/3325873936
-
-庄子
-https://www.zhihu.com/answer/3318675796
-
-在地性
-https://www.zhihu.com/answer/1225560963
-
-复旦陈果
-https://www.zhihu.com/answer/605465830
 
 赞美
 我只讲事实
