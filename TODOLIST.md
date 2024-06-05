@@ -3,6 +3,10 @@
 https://www.zhihu.com/question/655812741/answer/3502549964
 
 
+为什么越长大越对二次元反感了? - 狐狸的回答 - 知乎
+https://www.zhihu.com/question/408307154/answer/2840096407
+
+
 未雨绸缪和杞人忧天的区别是什么？ - 9adgq的回答 - 知乎
 https://www.zhihu.com/question/656197920/answer/3505763665
 
