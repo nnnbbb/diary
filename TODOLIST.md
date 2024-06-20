@@ -25,6 +25,30 @@ https://www.zhihu.com/question/575695859/answer/2825636383
 https://www.zhihu.com/question/21454965/answer/2873479978
 
 
+为什么思维理性的女生反而较少被男生喜欢？ - 汤郁的回答 - 知乎
+https://www.zhihu.com/question/313982757/answer/3377882592
+
+
+外国人聊天和中国人聊天
+出国给你最大的感受是什么？ - Burning man的回答 - 知乎
+https://www.zhihu.com/question/30215562/answer/132246926
+
+
+如何看待“自欺”？ - nell nell的回答 - 知乎
+https://www.zhihu.com/question/449460482/answer/1843987819
+
+
+带父母来京旅游，却被家人一顿斥，诚心请教原因？ - 9adgq的回答 - 知乎
+https://www.zhihu.com/question/548419941/answer/2976772199
+
+
+我老婆只会洗衣做饭，没有办法和我深入灵魂交流怎么办？ - 马达熊的回答 - 知乎
+https://www.zhihu.com/question/520495704/answer/2380582227
+
+
+有什么事是你过了很多年突然明白的？ - 江北的小推车的回答 - 知乎
+https://www.zhihu.com/question/285382931/answer/2856179960
+
 
 看尽所有的恶，却仍相信善，是怎样的一种蠢？ - 9adgq的回答 - 知乎
 https://www.zhihu.com/question/541768623/answer/2578577845
