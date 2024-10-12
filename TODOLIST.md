@@ -10,7 +10,37 @@ https://www.zhihu.com/question/408307154/answer/2840096407
 未雨绸缪和杞人忧天的区别是什么？ - 9adgq的回答 - 知乎
 https://www.zhihu.com/question/656197920/answer/3505763665
 
+#拖延症#
+最近你悟出来什么道理? - 旅行者一号的回答 - 知乎
+https://www.zhihu.com/question/603738353/answer/3262216792
 
+#米饼#
+我想问一下你们被爱的细节? - 南风的回答 - 知乎
+https://www.zhihu.com/question/604973412/answer/3132181313
+
+#聪明的女生#
+你因为什么拒绝过女生的示爱？ - 璟穆庵的回答 - 知乎
+https://www.zhihu.com/question/626528327/answer/3301208603
+
+#天赋#
+[真的会有人有某种天赋却被埋没一生吗？ - 陈狗蛋的回答 - 知乎](https://www.zhihu.com/question/35318941/answer/2826295984)
+
+#天赋# #必要的伦理、历史功课#
+[七岁半已学习数学分析、点集拓扑、复变函数后续该如何培养？ - 9adgq的回答 - 知乎](https://www.zhihu.com/question/620110690/answer/3195838051)
+
+什么条件，你敢伸手够那些好的？
+[已经有男朋友了，但是遇到了一个满足我对男朋友所有想法的男生该怎么办？ - 木可先生的回答 - 知乎](https://www.zhihu.com/question/407692864/answer/3083413431)
+
+#姓氏# #取名#
+[什么名能拯救梅这个姓？ - 紫荆银杏的回答 - 知乎](https://www.zhihu.com/question/324943215/answer/712249388)
+
+#打工人#
+[「打工人」梗爆火，说明了现在年轻人一种什么样的心理状态？ - nell nell的回答 - 知乎](https://www.zhihu.com/question/425754687/answer/1529986952)
+
+
+玩游戏的小孩是结果，不是原因
+问题背后的问题
+【你眼中的问题，是他的解决方案！-哔哩哔哩】 https://b23.tv/Yc2qQ1U
 
 有哪些只有经验丰富的司机才知道的驾驶技巧？ - Evan的回答 - 知乎
 https://www.zhihu.com/question/40494621/answer/2643837178
